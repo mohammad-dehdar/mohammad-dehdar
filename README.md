@@ -1,4 +1,4 @@
-# 💫 About Me: Call me Mamadi
+# 💫 About Me: i'm  Mamadi
 Frontend stuff (💰 banks, 🏥 health apps, and crypto things).<br><br>looking to collaborate on Cool projects with fun teams. Hit me up if it’s weird or hard.<br><br>I’m currently learning How to make real-time apps not suck.<br><br>I’ll say "yes" to any project that makes me Google for 5+ hours.
 
 
